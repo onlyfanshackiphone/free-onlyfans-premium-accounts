@@ -23,4 +23,4 @@ share account
 
 unlimited download
 
-    This is one of On fan’s best features. Yes, now you can download all your favorite photos from the manufacturer you’ve added to your watchlist. After finishing the download, you can watch it anytime, anywhere, just in the Off son’s app without an internet connection.
+    This is one of On fan’s best features. Yes, now you can download all your favorite photos from the manufacturer you’ve added to your watchlist. After finishing the download, you can watch it anytime, anywhere, just in the Off son’s app without an internet connection..
